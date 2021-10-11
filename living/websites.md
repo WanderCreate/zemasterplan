@@ -1,0 +1,16 @@
+# Useful websites for daily life, events, and establishing a life in the Netherlands
+
+1. [Expatica](https://www.expatica.com/nl/)
+2. [TimeOut](https://www.timeout.com/netherlands)
+3. [DutchCulture](https://dutchculture.nl/en)
+4. [reddit](https://www.reddit.com/r/Netherlands/)
+5. [DutchReview](https://dutchreview.com/)
+6. [Government](https://www.government.nl/)
+7. [Tax Administration](https://www.belastingdienst.nl/wps/wcm/connect/nl/home/home)
+8. [Immigration Administration](https://ind.nl/en/Pages/default.aspx)
+9. [Transport-GVB](https://en.gvb.nl/)
+10. [Holland Tourism](https://www.holland.com/global/tourism.htm)
+11. [AlbertHeijn](https://www.ah.nl/)
+12. [JUMBO](https://www.jumbo.com/)
+13. [Picnic-app](https://picnic.app/nl/)
+14. [English-Dutch Dictionary](https://www.linguee.com/english-dutch)
